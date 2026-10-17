@@ -1,5 +1,5 @@
 # Helloooooooooo World 🌐👋! 
-## TL;DR: This girl knows nothing and claims that she will learn.
+## TL;DR: This girl knows nothing and claims that she will learn.🤨
 🆔 My name is Katie/Yuncheng Zhang, 张允程 in Chinese. She/her pronouns; queer woman in STEM.
 
 👩‍💻 I am an international student studying Computer Science at Tufts University. I also do Quant Econ and Applied Math!
